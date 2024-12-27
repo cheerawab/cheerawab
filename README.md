@@ -12,4 +12,4 @@ Hey! It's me Cheer_awa
 > - My contact information
 >> - Discord `cheer_awab`
 >> - Email `cheerawab@gmail.com`
-> - My Youtube channel [Penguin Cheer](https://www.youtube.com/channel/UCTnkkh9LJU-K-VxqHRmglMQ/)
+> - My Youtube channel [企鵝Cheer](https://www.youtube.com/channel/UCTnkkh9LJU-K-VxqHRmglMQ/)
